@@ -1,4 +1,6 @@
 # wjwRep
-JIN 
-HAHASHA
-JEING
+niasjga
+dfhasj
+sadxgha
+serjkdflcls
+dsfjk
