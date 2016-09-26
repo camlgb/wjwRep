@@ -1,1 +1,4 @@
 # wjwRep
+JIN 
+HAHASHA
+JEING
